@@ -7,7 +7,8 @@ During my internship at Oasis Infobyte, I completed four design-focused tasks, g
 * Infographics: Designed data-driven visuals with tools like Canva and Venngage, focusing on effective storytelling and impactful presentation.
  This experience enhanced my design skills and exposed me to various tools and design principles. Excited to apply these skills in future projects!
 
-![09e14ea0-9dec-4960-b63f-4f96da924a5d](https://github.com/user-attachments/assets/a07b5b87-3784-4448-bee3-ef64bd83ed53)
-![90572754-9305-476c-a812-eff371ce959e](https://github.com/user-attachments/assets/22d54531-92f1-475f-b0c3-d45b7a9e5170)
-![85fd16db-db56-4c6b-bf8a-f9f721c6cd0b](https://github.com/user-attachments/assets/cb85169b-acab-4c48-8c5e-987078791c50)
-![Evolution of a Plant or Animal (2)](https://github.com/user-attachments/assets/4327138c-6be8-4e24-b35f-9e6b8f64d292)
+![Black Retro Movie Night Poster](https://github.com/user-attachments/assets/41ee36b4-28d6-4e86-8788-45224000f4e9)
+![Brown Modern Automotive Magazine Cover](https://github.com/user-attachments/assets/4774eb18-0da3-47f9-9673-5806e49b6567)
+![image](https://github.com/user-attachments/assets/c9d0f22c-ddb7-40c6-a9fc-eb9277919627)
+![Pastel Colorful Illustrative Digital Marketing Infographic (1)](https://github.com/user-attachments/assets/403569a4-d719-44ea-a888-9ab571054c68)
+
